@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Yassem68
-- 👀 I’m interested in sheeesh
 - 🌱 I’m currently learning networks and telecommunication
 - 💞️ I’m looking to collaborate on 😄
 - 📫 How to reach me: yassem.mohareb@uha.fr
